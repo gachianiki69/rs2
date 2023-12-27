@@ -1,1 +1,1 @@
-# Romancing Sa Ga Remaster
+# Romancing Sa Ga 2 Remaster
